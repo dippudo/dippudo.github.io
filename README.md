@@ -9,7 +9,6 @@ I’m **Dippudo**, a simple dude who likes to make animations and art in 3D, as 
 Welcome to my personal website/Github. Feel free to have a look around and discover some of the things that I have been working on!
 
 <br>
-<br>
 
 
 ## Links
